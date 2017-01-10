@@ -1,0 +1,1 @@
+# Selekcja-atrybut-w-systemu-decyzyjnego-metod-Fishera
